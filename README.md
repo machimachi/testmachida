@@ -1,0 +1,2 @@
+# testmachida
+http://www.physicaloid.com/2014/05/github%E3%82%B9%E3%83%88%E3%83%BC%E3%83%AA%E3%83%BC-%E2%80%95-%E3%81%9D%E3%81%AE%E3%82%B3%E3%83%BC%E3%83%89github%E3%81%A7%E5%85%AC%E9%96%8B%E3%81%97%E3%81%BE%E3%81%9B%E3%82%93%E3%81%8B%EF%BC%9F/#cap1
